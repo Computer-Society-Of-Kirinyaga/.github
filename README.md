@@ -1,1 +1,0 @@
-Computer Society of Kirinyaga
