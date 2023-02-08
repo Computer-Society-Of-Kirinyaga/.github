@@ -1,2 +1,2 @@
 # Computer Society of Kirinyaga
-## Kirinyaga university
+## Club website project
